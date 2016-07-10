@@ -1,3 +1,3 @@
 # Hello-World
-Oh shit waddup, ik ben een edit.
-Vergeet de aubergines niet.
+Oh shit waddup, i'm an edit.
+Don't forget about the eggplants.
